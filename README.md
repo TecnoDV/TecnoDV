@@ -1,2 +1,0 @@
-# TecnoDV
-Home Page
